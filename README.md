@@ -5,6 +5,8 @@
 
 - 🔭 I’m currently working on [Mikasa-Ackerman](https://github.com/GharlyKunzz/Mikasa-Ackerman.git)
 
+- 📱 My Instagram [Гарли🇷🇺](https://instagram.com/gharlyanakbaik)
+
 - 📫 How to reach me **gharlyxi@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
